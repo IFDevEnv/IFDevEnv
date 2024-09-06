@@ -25,8 +25,8 @@ Conectar y potenciar empresas globalmente, eliminando fronteras tecnológicas y 
 
 ## 📞 **Contáctanos**
 
-- **Sitio Web**: [www.ifintegrandfronteras.com](https://www.gocsa.es/)
-- **LinkedIn**: [IF IntegrandFronteras](https://www.linkedin.com/company/g.o.c.-s-a/mycompany/)
+- **Sitio Web**: (https://www.gocsa.es/)
+- **LinkedIn**: (https://www.linkedin.com/company/g.o.c.-s-a/mycompany/)
 
 ---
 
